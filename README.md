@@ -1,0 +1,1 @@
+# Inson-va-kopyuterning-ozaro-tasiri-
